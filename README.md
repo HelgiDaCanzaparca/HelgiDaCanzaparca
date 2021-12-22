@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HelgiDaCanzaparca
-- 👀 I’m interested in C, C++, gym, sex, rock&roll, destruction the univerce.
+- 👀 I’m interested in C, C++, gym, sex, rock&roll, destruction of the universe.
 - 🌱 I’m currently learning all this shit
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
